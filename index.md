@@ -3,3 +3,5 @@
 - [Dragon Fruit Beli Price and the Top of the Blox Fruits Shop](bf-beli-price-ceiling-1119c/)
 
 - [Two Recent Furniture and Home Goods Recalls Explained: Remedies and What to Check](two-recent-furniture-and-home-goods-reca-1120/)
+
+- [Blox Fruits You Can Buy for $100,000 Beli or Less](cheapest-fruits-under-100k-1120/)
