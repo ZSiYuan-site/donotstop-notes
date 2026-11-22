@@ -7,3 +7,5 @@
 - [Blox Fruits You Can Buy for $100,000 Beli or Less](cheapest-fruits-under-100k-1120/)
 
 - [Class Action Settlements: Check a payout date](settle-daily-1122-1/)
+
+- [Mobile Game Reward Links: Check a game's active codes](rwd-daily-1122-1/)
