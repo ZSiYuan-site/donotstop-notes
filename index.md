@@ -13,3 +13,5 @@
 - [A Field Guide to Do Not Stop Wiki](dns-field-notes-1123-1/)
 
 - [A Field Guide to Books in Order](books-field-notes-1123-1/)
+
+- [Reading Class Action Settlements the Smart Way](settle-pm-1123b-1/)
